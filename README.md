@@ -10,4 +10,4 @@
 
  ### Você pode entrar em contato comigo
  0000108823477xsp@al.educacao.sp.gov.br
- ![descrição do GIF](https://tenor.com/dCaBPIUVnV3.gif)
+ ![](https://tenor.com/dCaBPIUVnV3.gif)
